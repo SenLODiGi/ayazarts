@@ -1,2 +1,0 @@
-# ayazarts
-www.ayazarts.com
